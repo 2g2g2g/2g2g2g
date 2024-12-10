@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @2g2g2g
+- 👀 I’m interested in tutis
+- 🌱 I’m currently learning alot
+- 💞️ I’m looking to collaborate on content
+- 📫 How to reach me put up da bat signal
